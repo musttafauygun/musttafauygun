@@ -51,7 +51,7 @@
 - 📧 info@mustafauygun.com
 - 📧 mustafauygun08@icloud.com 
 - 📸 [Instagram](https://instagram.com/musttafauygun)
-- 🌐 mustafauygun.com
+- 🌐 [mustafauygun.com] (https://www.mustafauygun.com)
 
 ---
 
